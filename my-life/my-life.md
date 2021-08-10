@@ -13,13 +13,13 @@ I dreamed of her arms, and the warm embrace\
 Gentle smile, the soft glow radiating from her face
 
 Palms towered above, like specters of God\
-Spectators silent, to the path I trod,
+Spectators silent, to the path I trod\
 So wandered my mind, back to the place I once dreamed\
 Once a bright place, but now only the water gleamed
 
 Even the waves, only servants of a reminder\
 That never could I return, never would I find her\
-Nothing more left to feel, and even less to hope,
+Nothing more left to feel, and even less to hope\
 I gave in to the inevitable, falling down the slope
 
 But where I saw water, just but a mirage\
@@ -55,4 +55,4 @@ If only I could know, what brought on days of yore
 Might I be able to return back, to a better time\
 For now my only solace in paper, and recorded in rhyme\
 Not perfection or even a simile\
-But this next mountain anyways I must climb\
+But this next mountain anyways I must climb
