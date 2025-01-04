@@ -9,7 +9,7 @@ Possible to stave?
 
 Not for the rush,\
 Even for the taste,\
-Perhaps I just enjoy,\.
+Perhaps I just enjoy,\
 My organs, to go waste
 
 Enjoy the next,\
