@@ -5,7 +5,7 @@
 My quest to vanquish,\
 A beast unseen,\
 Second letter capital,\
-Big B is a hive, the queen,\
+Big B is a hive, the queen
 
 Honey draws me closer,\
 A dionysian trap,\
