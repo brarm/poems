@@ -1,10 +1,10 @@
 ## Life 
 
-#### Inpsired by ... the Universe ?
+#### Inpsired by the Universe and Robert Frost
 
 A journey this life is,\
 Travel through time and space,\
-Stranded on a strange rock,\ 
+Stranded on a strange rock,\
 What is this universe, our place?
 
 Should the answer we ponder,\
@@ -29,7 +29,7 @@ Life on stage, a show.
 
 We are all actors,\
 To each other‘s screenplay,\
-Our choice the roles we take,\ 
+Our choice the roles we take,\
 Even how long we might stay.
 
 Many enter the scene,\
@@ -42,7 +42,7 @@ More to go before sleep,\
 All I ask so I rest,\
 My promises. I keep, 
 
-The frost settles soft,\ 
+The frost settles soft,\
 Cold blanket on the ground,\
 Looking up heavens,\
 These would speak not a sound.
